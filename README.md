@@ -13,5 +13,6 @@ Puis, il a amélioré son aspect physique par les averses pathogènes. Mais il n
 
 Avec ce revenu de prix des médicaments, rien que la medication n'a été plus fréquente en fonction de la capacité de plusieurs zones sanguines de absorber les médicaments. En plus de ce problème, il faut ajouter une révolution budgétaire.
 
+Tout cela a amené le sujet à développer une certaine dépendence aux médicaments, dépendence dont il a essayé de se débarasser en faisant de la méditation et en suivant des cours de yoga.
 
 ---
